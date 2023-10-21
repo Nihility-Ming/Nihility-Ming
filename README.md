@@ -1,4 +1,4 @@
-## Hi, I'm Nihility-Ming :wave:
+## Hi, I'm Puma :wave:
 
 - software developer
 - bitcoin trader
